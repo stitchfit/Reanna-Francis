@@ -9,15 +9,15 @@
 
 - 🤝 I’m looking for help with **obtaining security clearance**
 
-- 👨‍💻 All of my projects are available at [www.reannafrancis.co](www.reannafrancis.co)
+- 👨‍💻 All of my projects are available at [github](https://github.com/stitchfit))
 
 - 📝 I regularly write articles on [Linkedin](www.linkedin.com/in/reannaf)
 
-- 💬 Ask me about **IT experience**
+- 💬 Ask me about **my IT experience**
 
 - 📫 How to reach me **rftech@reannafrancis.co**
 
-- 📄 Know about my experiences [www.linkedin.com/in/reannaf](www.linkedin.com/in/reannaf)
+- 📄 Know about my experiences [Linkedin](www.linkedin.com/in/reannaf)
 
 - ⚡ Fun fact **I love cat stickers!**
 
